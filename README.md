@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @r2024-raam
+- 👋 Hi, I’m @r2024-raam Raami kumaar
 - 👀 I’m interested in ... Web and App development 
 - 🌱 I’m currently learning ...AWS CLOUD
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... ustaadraam@gmail.com   +252634799776
+- 💞️ I’m looking to collaborate on ...everything related to my Experience
+- 📫 How to reach me ... ustaadraam@gmail.com   whatsapp: +252634799776
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... 
 
